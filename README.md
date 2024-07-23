@@ -1,0 +1,1 @@
+Este repositório se trata de uma breve e descontraída apresentação do grupo composto por William Rocha e Isabelly Vaz para a tarefa de HTML da empresa IN Junior. Aqui terão informações de ambos os membros, bem como seus gostos e outras curiosidades de cada um.
